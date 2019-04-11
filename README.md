@@ -106,6 +106,6 @@
 
 
 #### 联系方式
-博客：https://blog.csdn.net/qizewei123<br/>
-E-mail：qizewei@vip.qq.com<br/>
-微信：779754469
+博客：https://www.jianshu.com/u/e524cfa6044f<br/>
+E-mail：924106037@qq.com<br/>
+微信：924106037
